@@ -1,0 +1,1 @@
+# Missao-IA-Jeito-de-Aprender-2025
